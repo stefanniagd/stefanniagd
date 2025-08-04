@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @stefanniagd
 - 👀 I’m interested in animals
-- 🌱 I’m currently learning Python
 - 📫 How to reach me ... Don't reach me haha
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: Sharks are fish 🦈🐠🐡 :D
